@@ -1,5 +1,5 @@
-# Analyse de la rhétorique conspirationniste & Affaire des Chinese Balloons
-### *Conspiratorial Rhetoric Analysis and Chinese Balloon Affair*
+# Analyse de la rhétorique conspirationniste 
+### *Conspiratorial Rhetoric Analysis*
 
 ---
 
