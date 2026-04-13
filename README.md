@@ -1,5 +1,5 @@
-# Analyse de la rhétorique conspirationniste 
-### *Conspiratorial Rhetoric Analysis*
+# Mémoire de recherche : analyse de la rhétorique conspirationniste 
+### *Thesis : conspiratorial rhetoric analysis*
 
 ---
 
